@@ -1,2 +1,0 @@
-# felizcumplea-ospage
-feliz cumpleañospage
